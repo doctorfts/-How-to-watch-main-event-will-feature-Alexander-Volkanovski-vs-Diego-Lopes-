@@ -9,6 +9,13 @@ Reason: Volkanovski has been a champion and defended the title multiple times.
 Lopes’ Roll: Lopes is riding a strong wave and is very confident coming in to this fight. His power and aggression could give Volkanovski issues early.
 The Cardio and Strategy Factor: If Lopes can’t find a finish early, Volkanovski’s stamina and knack for in-fight adjustments could turn the tide in his favor.
 Betting Odds
+
+💻Best Streams for PC/MAC  
+🔴[SiteVisit](https://tinyurl.com/GithubUFC)
+
+📲Mobile  Friendly
+🔴[SiteVisit](https://tinyurl.com/GithubUFC)
+
 Bookmakers have Volkanovski a slight favorite (-125) over Lopes, who is a close -105 dog.
 Event Details
 Start Time For Main Card: 10:00 PM ET / 7:00 PM PT
